@@ -2,7 +2,7 @@
 
 🎓 AI student at Helwan University – Faculty of Computers & Artificial Intelligence (Expected 2026)  
 📍 Based in Cairo, Egypt  
-📧 mohammadtarek7928@gmail.com  
+📧 mohamedtarek.ai.dev@gmail.com  
 
 ---
 
